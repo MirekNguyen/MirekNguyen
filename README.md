@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @MirekNguyen
-- 📖 Currently studying at CTU Faculty of Information Technology in Prague
